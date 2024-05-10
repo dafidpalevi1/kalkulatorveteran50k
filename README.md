@@ -1,0 +1,1 @@
+# kalkulatorveteran50k
